@@ -1,2 +1,2 @@
 # Rinku
-Couples walking in the garden Boy t-shirt name is "RINKU" and Girl t-shirt name is "SHIVANI ".
+Couples walking in the garden Boy t-shirt name is "RINKU" and Girl t-shirt name is "Bhawna ".
